@@ -1,8 +1,5 @@
 # Wedding Website - Status = In Development 
 
-<p align="center">
-<img src="https://user-images.githubusercontent.com/15078782/150659777-bf20ca44-136e-4122-82ba-bbccc8a7e034.gif">
-</p>
 
 If you're reading this- hello! We did not want to use a prebuilt website, we are developers after all! So here it is deployed on GitHub Pages.
 
