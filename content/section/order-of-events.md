@@ -1,48 +1,25 @@
 ---
 draft: false
-title: "Order of Events"
+title: "Schedule"
 ---
 
-## 1:30pm - Arrivals
+## 6:00pm - Ceremony
 
-Everyone arrives at Higher Eggbeer
+Inside the Chandalier room facing the Moss Wall! 
 
-Warm drink on arrival before the ceremony
+## 6:30pm - Cocktail Hour
 
-## 2pm - Ceremony
+Enjoy a drink from one of 20+ drafts, wine, or signature cocktails, accompanied by light Hors d'oeuvres, a cookie tray, and great conversation!
 
-Inside the **Chapel Barn** at Higher Eggbeer
+## 7:30pm - Dinner
 
-## 2:30pm - Reception
+A traditional Lebanese buffet will be proveded by The Beirut with speeches to follow after dinner!
 
-Sparkling, canapes and photographs on the lawn after the ceremony- weather permitting!
+## 8:30pm - Reception
 
-Please do wrap up warm, but we have contingencies for rain
+Enjoy live music, a dance floor, and and open drinks bar!
 
-## 4pm - Wedding Breakfast
+## 11:00pm - Send-Off
 
-A dinner with wine will follow in Higher Eggbeer's **Banquet Barn**
+Join us to wrap up the night with our send-off!
 
-Speeches after dinner
-
-_Venue Bar opens during the wedding breakfast -  cash & card accepted_
-
-## Later... The Party
-
-After a quick reshuffle of the **Banquet Barn**, the party will begin!
-
-_The Small Things_ playing live music until 11pm
-
-Late night food served for those still peckish!
-
-## Carriages at midnight
-
-Wrap up warm for sparklers, toasted marshmallows, and drunken warbling around the fire pit as we begin to say our farewells!
-
-_Venue Bar closes shortly after midnight_
-
-## Wheelbarrows at 2am
-
-The **Banquet Barn** will shut at around midnight… but the party doesn’t need to end there!
-
-The smaller **‘Pub’ Barn** will be opened with a few bottles and maybe some kegs, for those hardcore enough to stay up!

@@ -1,7 +1,7 @@
 ---
 draft: false
-when: "Sat 11th Feb 2023, 2:00 PM"
+when: "September 9th 2023, 6:00PM"
 where:
-  first: "Higher Eggbeer Farm"
-  second: "Cheriton Bishop, Nr Exeter, Devon, EX6 6JQ"
+  first: "Monday Night Garage"
+  second: "933 Lee St SW, Atlanta, GA 30310"
 ---

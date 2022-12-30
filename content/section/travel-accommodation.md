@@ -7,20 +7,16 @@ title: "Travel and Accommodation"
 
 <br>
 
-The take-home messages are:
+The TLDR is:
 
 <br>
 
-Please pre-book a taxi for the evening if you are not travelling by car
+Hotels will be located downtown and it is less than a 2 mile uber ride to the venue, see Accommodation for more details.
 
 <br>
 
-There is a lot of parking space available at Eggbeer Farm and cars can be left here overnight.
+There is parking at the venue available, and all cars must be picked up by 11AM the next morning
 
 <br>
 
-Accommodation at Higher Eggbeer is available for hire, please contact Hugo and Sarah for more details
-
-<br>
-
-You could take a train down from London to Exeter on the morning of the wedding, and back home afterwards, if you wanted!
+There are two Monday Nights in the city of Atlanta, our venue is Monday Night **GARAGE!**

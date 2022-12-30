@@ -3,8 +3,9 @@ draft: false
 title: "Accommodation"
 ---
 
-## Camping and Caravans at Higher Eggbeer
+## We will update this as we finalize hotels!
 
+<!--
 Higher Eggbeer also offers additional accommodation on site via shepards huts and caravans, which **need to be booked and paid in advance via Hugo and Sarah**. You would be able to stay there until midday Monday.
 
 <br>
@@ -119,3 +120,5 @@ Sleeps 2 (12 min drive)
 - [Swallows Cottage, Falkedon nr Spreyton](https://www.swallowsatfalkedon.co.uk/the-accommodation.html)
 Self-catering cottage (18min drive)
     - 1 Bedroom/Sleeps 2
+
+    -->
