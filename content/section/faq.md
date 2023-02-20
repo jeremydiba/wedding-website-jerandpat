@@ -9,7 +9,7 @@ We would love everyone to come in Cocktail/Semi-Formal attire!
 
 <br>
 
-We would also **love** if every person/couple brought a used tie they do not care to part with (the more unique the better!)
+We would also **love** if every person brought a used tie they do not care to part with (the more unique the better!)
 
 ## Are Children Invited to the Wedding?
 

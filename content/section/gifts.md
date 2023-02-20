@@ -12,4 +12,4 @@ Our registry currently is not setup, so this is just a placeholder! [Registry](h
 
 <br>
 
-We would also like if every person/couple brought a **fun used tie** to the wedding (you do not have to wear it) as we have something special planned!
+We would also like if every person brought a **fun used tie** to the wedding (you do not have to wear it) as we have something special planned!

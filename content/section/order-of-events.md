@@ -5,19 +5,19 @@ title: "Schedule"
 
 ## 6:00pm - Ceremony
 
-Inside the Chandalier room facing the Moss Wall! 
+Inside the Chandalier room facing the Moss Wall.
 
 ## 6:30pm - Cocktail Hour
 
 Enjoy a drink from one of 20+ drafts, wine, or signature cocktails, accompanied by light Hors d'oeuvres, a cookie tray, and great conversation!
 
-## 7:30pm - Dinner
+## 7:15pm - Dinner
 
-A traditional Lebanese buffet will be proveded by The Beirut with speeches to follow after dinner!
+A full barbecue buffet will be provided by the famous Fox Bros BBQ! Enjoy brisket and pulled chicken with sides like mac and cheese as well as collared greens.
 
-## 8:30pm - Reception
+## 8:15pm - Reception
 
-Enjoy live music, a dance floor, and and open drinks bar!
+Enjoy live music, a dance floor, and two open bars!
 
 ## 11:00pm - Send-Off
 

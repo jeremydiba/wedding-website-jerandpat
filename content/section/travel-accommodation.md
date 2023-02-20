@@ -11,11 +11,11 @@ The TLDR is:
 
 <br>
 
-Hotels will be located downtown and it is less than a 2 mile uber ride to the venue, see Accommodation for more details.
+The hotel is the Omni Atlanta Hotel at the CNN center. It is less than a 2 mile uber ride to the venue, and in the heart of downtown Atlanta! see Accommodation for more details.
 
 <br>
 
-There is parking at the venue available, and all cars must be picked up by 11AM the next morning
+There is parking at the venue available, however, all cars must be picked up by 11AM the next morning
 
 <br>
 
