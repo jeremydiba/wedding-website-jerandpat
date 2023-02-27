@@ -3,7 +3,8 @@ draft: false
 title: "Schedule"
 ---
 
-## 5:30pm - Guest Arrive
+## 5:30pm - Guests Arrive
+Plan to arrive between 5:30PM and 5:45PM if possible.
 
 ## 6:00pm - Ceremony
 
