@@ -18,6 +18,6 @@ If you are looking at an Airbnb, we caution you make sure your Airbnb is in an a
 
 <br>
 
-Recommended Airbnb locations: 
+**RECOMMENDED LOCATIONS:** 
 <br>
 Midtown, Virginia Highlands, Inman Park, Cabbagetown, Reynoldstown, Glenwood Park, Grant Park, Atlantic Station, Knight Park / Howell Station, Old Fourth Ward (east of Boulevard NE), Candler Park, Tech Square area (around Georgia Tech campus).
