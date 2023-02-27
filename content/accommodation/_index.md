@@ -14,7 +14,7 @@ Here is the [booking link](https://www.omnihotels.com/hotels/atlanta-cnn-center/
 
 ## Airbnb
 
-If you are looking at an Airbnb, we advise caution to make sure your Airbnb is in an area you would feel comfortable staying. Please reach out if you are at all unsure of an area.
+If you are looking at an Airbnb, we caution you make sure your Airbnb is in an area you would feel comfortable staying. Please reach out if you are at all unsure of an area.
 <br>
 Recommended Airbnb locations: 
 <br>
