@@ -15,7 +15,9 @@ Here is the [booking link](https://www.omnihotels.com/hotels/atlanta-cnn-center/
 ## Airbnb
 
 If you are looking at an Airbnb, we caution you make sure your Airbnb is in an area you would feel comfortable staying. Please reach out if you are at all unsure of an area.
+
 <br>
+
 Recommended Airbnb locations: 
 <br>
 Midtown, Virginia Highlands, Inman Park, Cabbagetown, Reynoldstown, Glenwood Park, Grant Park, Atlantic Station, Knight Park / Howell Station, Old Fourth Ward (east of Boulevard NE), Candler Park, Tech Square area (around Georgia Tech campus).
