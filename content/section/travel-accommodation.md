@@ -11,7 +11,7 @@ The TLDR is:
 
 <br>
 
-The hotel is the Omni Atlanta Hotel at the CNN center. It is less than a 2 mile uber ride to the venue, and in the heart of downtown Atlanta! see Accommodation for more details.
+The hotel is the Omni Atlanta Hotel at the CNN center. It is less than 3 miles (9 minute uber) to the venue, and in the heart of downtown Atlanta! see Accommodation for more details.
 
 <br>
 
