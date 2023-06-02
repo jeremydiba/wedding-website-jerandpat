@@ -9,6 +9,11 @@ We have a group block booked at the Omni Atlanta Hotel at CNN Center and it is w
 
 <br>
 
+<iframe src="https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d3317.0644284080417!2d-84.39759382387467!3d33.75900093315658!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x88f50380633ff777%3A0xa22ac71390f711d3!2sOmni%20Atlanta%20Hotel%20at%20CNN%20Center!5e0!3m2!1sen!2sus!4v1685680305694!5m2!1sen!2sus" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
+
+<br>
+<br>
+
 Here is the [booking link](https://www.omnihotels.com/hotels/atlanta-cnn-center/weddings/dibattista-wedding-09052023) - should the block run out of rooms, please reach out to Jeremy or Pat to address the problem. We recommend booking as soon as possible to guarantee the cheapest rate.
 
 
