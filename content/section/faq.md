@@ -13,7 +13,7 @@ If you are able to, please bring a **fun used tie** that you can part with to th
 
 ## Are Children Invited to the Wedding?
 
-Unless specifically named on the invitation (or included as a part of the bridal party), we will not be inviting our friends under the age of 18. This event is an opportunity for us to celebrate with our loved ones and we do not want anyone missing out on the fun worrying about their little one(s)!
+Unless specifically named on the invitation (or included as a part of the wedding party), we will not be inviting our friends under the age of 18. This event is an opportunity for us to celebrate with our loved ones and we do not want anyone missing out on the fun worrying about their little one(s)!
 
 ## What else is there to do in Atlanta? 
 
