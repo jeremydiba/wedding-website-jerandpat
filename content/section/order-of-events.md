@@ -18,7 +18,7 @@ Enjoy a drink from one of 20+ drafts, wine, or signature cocktails, accompanied 
 
 A full barbecue buffet will be provided by the famous Fox Bros BBQ! Enjoy brisket and pulled chicken with sides like mac and cheese and collared greens.
 
-## 8:15pm - Reception
+## 8:30pm - Reception
 
 Enjoy live music, a dance floor, and two open bars.
 

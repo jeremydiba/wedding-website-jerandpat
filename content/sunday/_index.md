@@ -15,3 +15,6 @@ Everything in this markdown file is going to build the /sunday page of the websi
 ## Will we have booked the venue's sauna
 
 Unlikely
+Put our names here for SEO
+Jeremy DiBattista Patrizia Pain
+Jeremy and Pat
