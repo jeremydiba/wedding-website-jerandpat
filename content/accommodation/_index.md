@@ -16,6 +16,10 @@ We have a group block booked at the Omni Atlanta Hotel at CNN Center and it is w
 
 Here is the [booking link](https://www.omnihotels.com/hotels/atlanta-cnn-center/weddings/dibattista-wedding-09052023) - should the block run out of rooms, please reach out to Jeremy or Pat to address the problem. We recommend booking as soon as possible to guarantee the cheapest rate.
 
+<br>
+
+The deadline for hotel reservations is 1 month prior, so 5PM on August 8th. If you are looking into the Omni hotel after this date, you can still call the Omni to try and get added to the group, but they do not make guarantees on availability or rate!
+
 
 ## Airbnb
 

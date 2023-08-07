@@ -18,3 +18,11 @@ Unless specifically named on the invitation (or included as a part of the weddin
 ## What else is there to do in Atlanta? 
 
 We are glad you asked! While staying in the heart of the city, there are a lot of fun restaraunts, events, and locations we recommend seeing. Please see our page on <a href="/things-to-do">Things To Do</a>.
+
+## What are the deadlines for RSVP and Hotel Reservations?
+
+The deadline for RSVP is August 16th, please let us know if you cannot decide by that time or have difficult travel plans.  
+
+<br>
+
+The deadline for hotel reservations is 1 month prior, so 5PM on August 8th. If you are looking into the Omni hotel after this date, you can still call the Omni to try and get added to the group, but they do not make guarantees on availability or rate!
